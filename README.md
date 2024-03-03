@@ -1,6 +1,6 @@
 Privacy Policy
 
-Effective Date: March 3, 2024
+Effective Date: March 5, 2024
 
 We are committed to respecting and safeguarding your privacy. This privacy policy explains how we solicit and use your permission to record videos, as well as the display of advertisements within our application. It also outlines how we protect the personal information you choose to provide.
 
